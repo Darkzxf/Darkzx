@@ -1,3 +1,3 @@
 # Darkzx
 Designer gráfico relacionado a tecnologia pq é oq eu curti 
-https://github.com/Darkzxf/Darkzx/assets/169453236/dc4d2cea-7e86-408a-92e6-479ffe434e30
+![rider-medusa](https://github.c![rider-medusa](https://github.com/Darkzxf/Darkzx/assets/169453236/453b40a4-dcab-450d-9b37-45fdd7a4dddc)
